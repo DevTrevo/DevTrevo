@@ -10,5 +10,5 @@
 
 😄 Pronomes: Ele/Dele
 
-⚡ Curiosidade: Eu sou um grande fã de música e toco guitarra nas horas vagas.
+⚡ Curiosidade: Eu sou um grande fã de música e jogos em geral.
 
