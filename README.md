@@ -6,7 +6,7 @@
 
 💞️ Estou procurando colaborar em projetos que possam ter um impacto positivo na comunidade, seja através de educação, saúde ou sustentabilidade.
 
-📫 Como me encontrar: [seu email] ou [seu LinkedIn]
+📫 Como me encontrar: 
 
 😄 Pronomes: Ele/Dele
 
