@@ -8,7 +8,6 @@
 
 📫 Como me encontrar: 
 
-😄 Pronomes: Ele/Dele
 
 ⚡ Curiosidade: Eu sou um grande fã de música e jogos em geral.
 
